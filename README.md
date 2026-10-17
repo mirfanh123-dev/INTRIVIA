@@ -12,4 +12,4 @@ INTRIVIA membuat saya mendapatkan insight baru terutama di Departemen Teknik Inf
 Cluster saya seru kakak-kakak fasilitator dan teman-temannya baik
 
 ## Harapan Kuliah 
-Harapan saya bisa berkuliah dengan baik, mendapatkan IPK diatas 3.9 dan mengikuti organisasi
+Bisa mendapatkan IPK diatas 3.9 dan ikut organisasi
