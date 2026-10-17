@@ -10,3 +10,6 @@ INTRIVIA membuat saya mendapatkan insight baru terutama di Departemen Teknik Inf
 
 ## Kesan Pesan Cluster 7 Sejauh Ini 
 Cluster saya seru kakak-kakak fasilitator dan teman-temannya baik
+
+## Harapan Kuliah 
+Harapan saya bisa berkuliah dengan baik, mendapatkan IPK diatas 3.9 dan mengikuti organisasi
